@@ -1,1 +1,0 @@
-# trixiquirk.com
